@@ -1,9 +1,9 @@
-# Olá, eu sou a Marina! 
+# Olá, eu sou a Marina! /\🎩/\ 
+                       ( • ω •)
+
                                           
 Seja bem-vindo(a) ao meu portfólio no GitHub! 
 
-/\🎩/\ 
-( • ω •)
 
 ## Sobre mim
 - 🎓 Estudante na instituição Fernando Prestes.
